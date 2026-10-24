@@ -24,3 +24,4 @@ GTtech è una realtà focalizzata sull'innovazione digitale, sullo sviluppo soft
 ---
 
 © 2026 GTtech. Tutti i diritti riservati.
+google-site-verification: googleec5e234ea35648a6.html
